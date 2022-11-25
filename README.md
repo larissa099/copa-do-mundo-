@@ -1,1 +1,25 @@
-# copa-do-mundo-
+A copa do mundo é um do maiores eventos esportivo do planeta e, a cada bilhões de pessoas assistem os jogos. A copa ela e uma data comemorativa ondes as pessoas 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+ 
